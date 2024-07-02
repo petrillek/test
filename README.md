@@ -1,2 +1,2 @@
 # test
-Tomáš N. je Z***!!
+Tomáš N. je Bůh!!
