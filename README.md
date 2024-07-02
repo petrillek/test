@@ -1,2 +1,2 @@
 # test
-Tomáš N. je ****!!
+Tomáš N. je Z***!!
